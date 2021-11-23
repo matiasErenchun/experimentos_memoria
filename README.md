@@ -1,1 +1,0 @@
-# experimentos_memoria
